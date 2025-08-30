@@ -9,3 +9,5 @@ Even though I’m still on my path to becoming truly fluent, I love exploring, t
 Beyond the code, I’m someone who enjoys the quiet side of life: peaceful evenings, soft corners, and keeping things clear, kind, and maybe a little charming.
 
 So that’s me, Maccie: a coffee-loving coder, always learning, always cozy, and hoping to bring a bit of warmth and curiosity to everything I build. 🌼🧡
+
+so, thats it about me, thank you for stopping by and i hope you a very sweet and amazing day 😊❤️
