@@ -1,4 +1,4 @@
-🌿 Hey there! I’m Maccie or call me Müller.
+🌿 Hey there! I’m Maple or call me JuxtMaplee
 
 I’m an intermediate coder wandering through the worlds of Java, Python, and a sprinkle of C++. Right now, I’m especially pouring more time into learning Java — slowly, warmly, and patiently building up my skills, one thoughtful step at a time. ☕💻✨
 
